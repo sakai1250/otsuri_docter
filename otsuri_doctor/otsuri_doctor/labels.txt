@@ -1,0 +1,7 @@
+1 yen
+5 yen
+10 yen
+50 yen
+100 yen
+500 yen
+other
