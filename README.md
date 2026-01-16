@@ -12,7 +12,7 @@
 これぞ、おつり界のカリスマ医師。
 
 現金生活にドクターの新常識。
-数えるな、撮れ。
+数えるな、撮れ。　
 
 <img width="270" height="348" alt="スクリーンショット 2025-12-02 4 07 37" src="https://github.com/user-attachments/assets/64575122-f9ae-4c8c-9776-e7b9c7a018cb" />
 
